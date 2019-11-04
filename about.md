@@ -1,3 +1,3 @@
 # 关于
 
-> 啥都没
+> 详情请访问 [www.xindoo.com](http://www.xindoo.com)
